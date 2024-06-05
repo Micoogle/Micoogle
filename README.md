@@ -5,5 +5,5 @@
 - ⚡ Fun fact: .cricket lover♥️
  <br>
 Student of cls 10
-<br>
-love to live kife to the fullest♥️❤️‍🔥
+<hr>
+love to live life to the fullest♥️❤️‍🔥
