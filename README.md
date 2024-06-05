@@ -1,7 +1,15 @@
 - 👋 Hi, I’m @Micoogle
-- 👀 I’m interested in ...coding,maths,science
+- landed on earth on 28th april❤️‍🔥👑
+- 👀 I’m interested in:-
+  <br>
+coding
+ <br>
+maths
+<br>
+science
 - 🌱 I’m currently learning ..
 -   JAVA
 - ⚡ Fun fact: .cricket lover♥️
  <br>
 Student of cls 10
+
